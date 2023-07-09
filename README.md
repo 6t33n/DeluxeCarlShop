@@ -1,2 +1,2 @@
 # DeluxeCarlShop
-Download: 
+Download: https://discord.gg/zesmbmwm6s
